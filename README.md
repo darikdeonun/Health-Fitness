@@ -1,1 +1,2 @@
-# Health-Fitness
+# Health Fitness
+Regular physical activity is one of the most important things you can do for your health. Being physically active can improve your brain health, help manage weight, reduce the risk of disease, strengthen bones and muscles, and improve your ability to do everyday activities. Fitness involves activity of some sort that stimulates various systems of the body [vibrating dildo](https://www.totorgasm.com/) and maintains a certain condition within the body. Health, on the other hand, involves every system of the body and is only achieved through a lifestyle that supports health.
